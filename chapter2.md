@@ -18,7 +18,7 @@
 参差荇菜，左右芼[1]之。窈窕淑女，钟鼓乐之。
 
 
-<img src="">
+<img src="https://github.com/YouthSpace1912/Poem_Spring/blob/master/images/%E5%85%B3%E5%85%B3%E9%9B%8E%E9%B8%A0%EF%BC%8C%E5%9C%A8%E6%B2%B3%E4%B9%8B%E6%B4%B2.jpeg">
 
 【注释】：
 
