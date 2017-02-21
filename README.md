@@ -13,7 +13,7 @@
 
 [第一回 甲骨文字始流传](https://github.com/YouthSpace1912/Poem_Spring/blob/master/chapter1.md)
 
-[第二回 诗三百，一言以蔽之，思无邪也](https://github.com/YouthSpace1912/Poem_Spring/blob/master/chapter2.md)
+[第二回 求之不得，寤寐思服。悠哉悠哉，辗转反侧](https://github.com/YouthSpace1912/Poem_Spring/blob/master/chapter2.md)
 
 [第三回 山有木兮木有枝，心说君兮君不知](https://github.com/YouthSpace1912/Poem_Spring/blob/master/chapter3.md)
 
