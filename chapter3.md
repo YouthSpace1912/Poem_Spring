@@ -36,3 +36,94 @@
 
 
 <img src="https://github.com/YouthSpace1912/Poem_Spring/blob/master/images/%E5%B1%B1%E6%9C%89%E6%9C%A8%E5%85%AE%E6%9C%A8%E6%9C%89%E6%9E%9D.jpeg">
+
+正如印度诗人泰戈尔的《世界上最远的距离》
+
+ > 世界上最远的距离，不是生与死的距离,而是我站在你面前 你不知道我爱你 
+
+
+      世界上最远的距离 
+      不是生与死的距离 
+      而是我站在你面前 
+      你不知道我爱你 
+      世界上最远的距离 
+      不是我站在你面前 
+      你不知道我爱你 
+      而是爱到痴迷 
+      却不能说我爱你 
+      世界上最远的距离 
+      不是我不能说我爱你 
+      而是想你痛彻心脾 
+      却只能深埋心底 
+      世界上最远的距离 
+      不是我不能说我想你 
+      而是彼此相爱 
+      却不能够在一起 
+      世界上最远的距离 
+      不是彼此相爱 
+      却不能够在一起 
+      而是明知道真爱无敌 
+      却装作毫不在意 
+      世界上最远的距离 
+      不是树与树的距离 
+      而是同根生长的树枝 
+      却无法在风中相依 
+      世界上最远的距离 
+      不是树枝无法相依 
+      而是相互了望的星星 
+      却没有交汇的轨迹 
+      世界上最远的距离 
+      不是星星之间的轨迹 
+      而是纵然轨迹交汇 
+      却在转瞬间无处寻觅 
+      世界上最远的距离 
+      不是瞬间便无处寻觅 
+      而是尚未相遇 
+      便注定无法相聚 
+      世界上最远的距离 
+      是鱼与飞鸟的距离 
+      一个在天,一个却深潜海底 
+      
+      英文：
+       
+      The most distant way in the world 
+      The most distant way in the world 
+      is not the way from birth to the end. 
+      it is when i sit near you 
+      that you don't understand i love u. 
+      The most distant way in the world 
+      is not that you're not sure i love u. 
+      It is when my love is bewildering the soul 
+      but i can't speak it out. 
+      The most distant way in the world 
+      is not that i can't say i love u. 
+      it is after looking into my heart 
+      i can't change my love. 
+      The most distant way in the world 
+      is not that i'm loving u. 
+      it is in our love 
+      we are keeping between the distance. 
+      The most distant way in the world 
+      is not the distance across us. 
+      it is when we're breaking through the way 
+      we deny the existance of love. 
+      So the most distant way in the world 
+      is not in two distant trees. 
+      it is the same rooted branches 
+      can't enjoy the co-existance. 
+      So the most distant way in the world 
+      is not in the being sepearated branches. 
+      it is in the blinking stars 
+      they can't burn the light. 
+      So the most distant way in the world 
+      is not the burning stars. 
+      it is after the light 
+      they can't be seen from afar. 
+      So the most distant way in the world 
+      is not the light that is fading away. 
+      it is the coincidence of us 
+      is not supposed for the love. 
+      So the most distant way in the world 
+      is the love between the fish and bird. 
+      one is flying at the sky, 
+      the other is looking upon into the sea.
